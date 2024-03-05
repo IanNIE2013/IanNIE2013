@@ -1,0 +1,6 @@
+- Hi, I’m @IanNIE2013. Actually I am a Chinese.
+- I’m interested in developing websites and I also like math.
+- I’m currently learning Olympic Informatics and then I'm interest in developing.
+- I’m looking to collaborate on developing and learning together.
+- When I sign in, I am only 10 and there aren't any friends which also interest in it, so I am keen in making friends.
+- Please email Ian_NIE@aliyun.com to contact me.
